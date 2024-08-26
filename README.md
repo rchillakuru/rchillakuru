@@ -4,7 +4,7 @@
 
 💞️ I’m looking to collaborate on projects involving data migration, predictive modeling, and interactive dashboard creation. 
 
-📫 How to reach me: rmounikap@gmail.com.
+📫 How to reach me: mreddychil7@gmail.com.
 
 😄 Pronouns: She/Her
 
